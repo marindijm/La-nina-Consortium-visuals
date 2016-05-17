@@ -1,0 +1,2 @@
+# La-nina-Consortium-visuals
+A mapping exercises for Community Disaster Management Plans was undertaken by consortium partners in Wajir, Mandera, Samburu, Marsabit, Turkana and West Pokot counties for communities that had previously received a grant through the La Nina ECHO funded project to implement a prioritized activity in the plan which will help them mitigate the effects of a disaster they had analysed through a Participatory Disaster Risk Analysis process
